@@ -1,4 +1,4 @@
-# 
+# Get the ultimate Figma for PC | Figma for Windows script with advanced Figma for PC | Figma for Windows Script | node-editing + symbol-libraries. Featuring node-editing and
 
 
 
